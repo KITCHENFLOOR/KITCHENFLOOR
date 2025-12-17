@@ -6,4 +6,4 @@
 ‎ 
 ‎ 
 
-[rentry]([https://rentry.co/hipslitter/]) [sp](https://libertarianism.straw.page)
+[rentry](https://rentry.co/timetool) [sp](https://libertarianism.straw.page)
