@@ -8,4 +8,4 @@
 ‎ 
 ‎ 
 
-[rentry](https://rentry.co/timetool) [sp](https://thenormalstrawpage.straw.page)
+[rentry](https://rentry.co/cupiddeath) [sp](https://thenormalstrawpage.straw.page)
