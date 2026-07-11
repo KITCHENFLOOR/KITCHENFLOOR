@@ -1,13 +1,14 @@
 
+ <p align="center">pt h*c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> Approach me meticulously if you are susceptible.
+
+<p align="center"><img width="80" height="79" alt="17837329245365700911773614133549" src="https://github.com/user-attachments/assets/0d36a1fd-52e2-45ad-9b47-098711889d6c" />
+
+
+ 
+[RENTRY](https://rentry.co/heartlesslover)ㅤㅤㅤㅤ[SP](https://heartlesslover.straw.page)
+
+
+[C𖹭DY.](https://github.com/Timebattle) <img width="18" height="18" alt="17837312842348166864116671356981" src="https://github.com/user-attachments/assets/3a9a9d63-aae1-484b-99be-4ab2f38f8689" /> 
 
 
 
-  
-<p align="center"><img width="80" height="46" alt="1783637067981317818361267643344" src="https://github.com/user-attachments/assets/e67aa1ab-9d7d-4f27-a7de-10654754b58f" />
- <img width="80" height="46" alt="17818801312785621560671898511284" src="https://github.com/user-attachments/assets/6cd04642-4885-435c-9c48-9780af88320c" /><img width="80" height="46" alt="17836371563057331678307532992003" src="https://github.com/user-attachments/assets/24174224-2564-4548-a76a-e5a6df0ec768" /> <img width="80" height="46" alt="17836374752367070620953785208201" src="https://github.com/user-attachments/assets/277f76e0-426f-40f1-8ca8-2cabce553001" />
-
-  
-
-
-
- [RENTRY](https://rentry.co/heartlesslover)<img width="30" height="30" alt="17836372689644834384022513925621" src="https://github.com/user-attachments/assets/b689ec5b-c321-4a48-9dc9-0e4762a25944" />
