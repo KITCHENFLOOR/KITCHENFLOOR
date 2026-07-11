@@ -1,7 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=250&size=15&pause=1000&color=AFAFAF&center=true&width=435&lines=Seriously%2C;Who+can+say+'no'+to+a+pinch+of+good+old+deceit%3F+)](https://git.io/typing-svg)
 
 
-<p align="center"> <img width="200" height="200" alt="17837820798824480135576357101506" src="https://github.com/user-attachments/assets/b8d6a0e7-ffa6-4fcf-a6e2-8bdcb6f4d4d8" />
 
  
 
