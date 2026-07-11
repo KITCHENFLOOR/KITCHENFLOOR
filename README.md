@@ -10,6 +10,6 @@
 [RENTRY](https://rentry.co/heartlesslover)ㅤㅤㅤㅤ[SP](https://heartlesslover.straw.page)
 
 
-[C𖹭DY.](https://github.com/Timebattle) <img width="18" height="18" alt="17837312842348166864116671356981" src="https://github.com/user-attachments/assets/3a9a9d63-aae1-484b-99be-4ab2f38f8689" /> ㅤ[Adi](https://github.com/ad61e)
-ㅤ[Codin](https://github.com/lampreyhole)
+[C𖹭DY.](https://github.com/Timebattle) <img width="18" height="18" alt="17837312842348166864116671356981" src="https://github.com/user-attachments/assets/3a9a9d63-aae1-484b-99be-4ab2f38f8689" /> ㅤ[Adi𑁤](https://github.com/ad61e)
+ㅤ[Codin𑁤](https://github.com/lampreyhole)
 
