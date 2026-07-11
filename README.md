@@ -1,10 +1,28 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=250&size=15&pause=1000&color=AFAFAF&center=true&width=435&lines=Seriously%2C;Who+can+say+'no'+to+a+pinch+of+good+old+deceit%3F+)](https://git.io/typing-svg)
 
- <p align="center">pt h*c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> Approach me meticulously if you are susceptible.
+
+<p align="center"> <img width="300" height="300" alt="17837820798824480135576357101506" src="https://github.com/user-attachments/assets/b8d6a0e7-ffa6-4fcf-a6e2-8bdcb6f4d4d8" />
+
+ 
+
+
+
+
+
+ <p align="center"> 
+pt h*c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> Approach me meticulously if you are susceptible.</span>
 ㅤ
-  
-<img width="247" height="162" alt="17837777122972001723209394472742" src="https://github.com/user-attachments/assets/ddb3ed22-583a-4869-ae0e-f03df63a0106" />
 
 
+
+
+
+
+
+
+
+
+___________
 
  
 [RENTRY](https://rentry.co/heartlesslover)ㅤㅤㅤㅤ[SP](https://heartlesslover.straw.page)
