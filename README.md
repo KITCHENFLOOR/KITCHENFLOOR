@@ -14,7 +14,7 @@
 <p align="center"><img width="157" height="167" alt="17838232809258974593731638986283" src="https://github.com/user-attachments/assets/716048b1-ba1b-45d1-9483-51c830892b5e" />
 
 
-<p align="center"> <img width="640" height="26" alt="17837947020873202048526471284109" src="https://github.com/user-attachments/assets/a8237bb0-cfee-48e5-b6c8-6e3b515716a1" />
+
 
 
 
@@ -43,7 +43,7 @@
 
 
  
-[RENTRY](https://rentry.co/heartlesslover)ㅤㅤㅤㅤ[SP](https://heartlesslover.straw.page) ㅤㅤㅤㅤ[ata](https://frenzy.atabook.org/)
+[rentry](https://rentry.co/heartlesslover)ㅤㅤㅤㅤ[straw](https://heartlesslover.straw.page) ㅤㅤㅤㅤ[新book](https://frenzy.atabook.org/)
 
 
 [C𖹭DY.](https://github.com/Timebattle) <img width="18" height="18" alt="17837312842348166864116671356981" src="https://github.com/user-attachments/assets/3a9a9d63-aae1-484b-99be-4ab2f38f8689" /> ㅤ[Adi𑁤](https://github.com/ad61e)
