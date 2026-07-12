@@ -11,7 +11,7 @@
 
 
 
-<p align="center"><img width="157" height="167" alt="17838232809258974593731638986283" src="https://github.com/user-attachments/assets/716048b1-ba1b-45d1-9483-51c830892b5e" />
+<p align="center"><img width="127" height="137" alt="17838232809258974593731638986283" src="https://github.com/user-attachments/assets/716048b1-ba1b-45d1-9483-51c830892b5e" />
 
 
 
@@ -29,7 +29,7 @@
 
 
 
-<p align="center"> <img width="40" height="26" alt="1783823667114897170258963875018" src="https://github.com/user-attachments/assets/f467ae58-6c4c-4a20-8125-651967458d41" /> pt h*c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> 
+<p align="center"> pt h*c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> 
 <p align="center"> Approach me meticulously if you are susceptible.
 
 
