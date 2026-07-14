@@ -1,18 +1,7 @@
 
 
 
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=250&size=15&pause=1000&color=AFAFAF&center=true&width=435&lines=Seriously%2C;Who+can+say+'no'+to+a+pinch+of+good+old+deceit%3F+)](https://git.io/typing-svg)
-
-
-
-
-
-
-
-<p align="center"><img width="127" height="137" alt="17838232809258974593731638986283" src="https://github.com/user-attachments/assets/716048b1-ba1b-45d1-9483-51c830892b5e" />
-
+<p align="center"><img width="400" height="400" alt="17840656477685611133487822044724" src="https://github.com/user-attachments/assets/76e489d1-b7c9-4a7a-b528-0b96599478e0" />
 
 
 
@@ -27,10 +16,10 @@
 
 
 
-
-
-<p align="center"> pt h*c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> 
 <p align="center"> Approach me meticulously if you are susceptible.
+
+<p align="center"> 𝗣𝗧 h×c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> 
+
 
 
 
