@@ -16,7 +16,7 @@
 
 
 
-<p align="center"> Approach me meticulously if you are susceptible.
+<p align="center"> Approach me meticulously if you are 𝙨𝙪𝙨𝙘𝙚𝙥𝙩𝙞𝙗𝙡𝙚
 
 <p align="center"> 𝗣𝗧 h×c, I don't care <img width="20" height="20" alt="17837314006991542337355555471109" src="https://github.com/user-attachments/assets/9658ad90-7d1b-487a-a334-f81cfed9d646" /> 
 
